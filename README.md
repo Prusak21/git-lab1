@@ -1,4 +1,4 @@
 xddddddelo zelo
-pierwsze zajecia
+pierwsze zajeciax
 
 KOLEJNY BRUNCH XD
