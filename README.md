@@ -1,3 +1,3 @@
-elo zelo
+xddddddelo zelo
 pierwsze zajecia
 
